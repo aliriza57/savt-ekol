@@ -1,0 +1,1 @@
+Bu alt yapı,CodEming sunucusun da paylaşılmıştır.Yapım telifi yasin (sunucu kurucusu) aittir.Herhangi bir altyapı'nın paylaşılma durumunda, "https://www.youtube.com/channel/UCr-2or7tU7QyLa3Eyxzlgpw" kanalında paylaşılan yapım videosu üzerinden telif hakkı bildirilecektir.
